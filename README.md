@@ -7,5 +7,5 @@ Outside the lab and classroom, I’m a member of the Cornell Rowing Club and the
 
 ## Contact
 
-LinkedIn: your-link  
+LinkedIn: your-link  hi
 Email: your-email
